@@ -4,3 +4,7 @@
 ![3](https://github.com/palakshin/Automated-Irrigation-System/assets/149965326/1f26c775-766d-4180-a57f-9a07c902d54f)
 ![2](https://github.com/palakshin/Automated-Irrigation-System/assets/149965326/39b6fd82-fb80-4871-ad48-cbfef8d4f95e)
 ![1](https://github.com/palakshin/Automated-Irrigation-System/assets/149965326/b0253608-616b-4f5c-a9d8-5b8fbc23ddd8)
+
+
+https://github.com/palakshin/Automated-Irrigation-System/assets/149965326/ec339754-a819-4288-9491-2b38859a41c8
+
